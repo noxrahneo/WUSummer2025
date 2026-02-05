@@ -1,1 +1,1 @@
-INtership in China, Summer 2025
+Intership in China, Summer 2025
